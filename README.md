@@ -2,8 +2,8 @@
 - 👀 sou interessada em aprender sempre 
 - 🌱 atualmente estou aprendendo a focar mais nas coisas importantes 
 - 📫 podem falar comigo pelo e-mail 0000110680711xsp@al.efucacao.sp.gov.br
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 pronome: ela/ dela 
+  
 
 <!---
 kata423/kata423 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
